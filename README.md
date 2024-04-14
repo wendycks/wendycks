@@ -10,7 +10,7 @@
 
 👤 Pronouns: She/Her
 
-⚡ Fun fact: I'm enchanted by the Douglas fir's unique plate-shaped bark—it's simply adorable! Also, I'm a devoted fan of the Duffy and Friends toyline at Disney. There’s always room in my collection for more!
+⚡ Fun fact: I'm enchanted by the Douglas fir's plate-shaped bark—it's simply adorable! Also, I'm a devoted fan of the Duffy and Friends toyline at Disney. There is always room in my collection for more!
 
 Let’s connect and explore the potential of geomatics and environmental conservation together!
 
